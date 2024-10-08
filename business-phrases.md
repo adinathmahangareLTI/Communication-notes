@@ -19,4 +19,14 @@
 19. **Deep dive**: A thorough analysis or detailed examination.
 20. **Touchpoint**: Any point of interaction between a business and its customers
 21. **Going off on a tangent**: shift in focus from the main subject
+22. **Learning curve**
+23. **Let's call it a day**
+24. **cut corners**
+25. **drill down into**
+26. **stay ahead of the curve**
+27. **keep ahead of the trend**
+28. **go the extra mile**
+29. **the bottom-line**
+30. **game-changer**
+
     
