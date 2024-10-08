@@ -18,3 +18,5 @@
 18. **Bandwidth**: The capacity to handle tasks or projects.
 19. **Deep dive**: A thorough analysis or detailed examination.
 20. **Touchpoint**: Any point of interaction between a business and its customers
+21. **Going off on a tangent**: shift in focus from the main subject
+    
