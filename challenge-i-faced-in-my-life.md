@@ -4,5 +4,21 @@
 
 - I don't had any idea how to make new friends. Looking at all those confident classmates. I started feeling underconfident about myself. I was on my own. People used to tease me because of accent of speaking Marathi. and I used wear only full-sleeves clothes. since my father told me you don't have personality to wear T-shirts. So I was that nerdy introvert 14 year kid, 100 Kms away from his family. It was toughest time period of my life. Those were my classmates, who used to bully me because I was smallest kid in my classroom. I had weight around 25-30 Kgs.
 
-- I started thiking about how to solve this issue. The main problem was 
+- I started thiking about how to solve this issue. The main problem was
+
+
+
+
+
+Key Pointers:
+- background idea : being pampered, father maths teacher
+- the bullying phase : JNV, being athlete is like being hero, 
+- first steps : bhag-milkha-bhag started running, few bodyweight exercises like indian push-ups, cycling
+- participated in cross-country compitition - got third position
+- joining the gym during lockdown - running + swimming + trekking
+- learned nutrition(calorie surplus diet) + good sleep
+- seeing progress - facing injuries
+- consistency is key - healthy lifestyle - boosting confidence
+
+
 
