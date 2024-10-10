@@ -20,5 +20,28 @@ Key Pointers:
 - seeing progress - facing injuries
 - consistency is key - healthy lifestyle - boosting confidence
 
+- \
+
+
+
+Good Morning Sir,
+ 
+Today I’d like to share my journey from being skinny to fit. Let me start with some background on where I come from and how my childhood was. I’m from a small village in the Satara District of Maharashtra. My father is a Mathematics teacher in a primary school, so there were always high expectations for me to excel academically. And I always tried to meet those expectations.
+ 
+As an only child, I was quite pampered, especially when it came to food. For example, I didn’t eat onions until I was 13. Back then, I had no sense of staying active or caring about my appearance.
+ 
+The turning point in my life came when I got selected for JNV school, a government scholarship program that selects the top 80 students in the Navodaya exam each year. I continued to do well academically there, but I noticed something different: the school promoted athletes as heroes. Despite this, I spent my free time studying instead of playing sports.
+ 
+However, I faced a lot of bullying because of my appearance and size—I was the smallest kid in the class. I didn’t have the confidence to stand up to the bullies, and over time, I became an introverted, underconfident nerd, far from my family and comfort zone.
+ 
+I didn’t know how to solve this problem until one Sunday afternoon, when we watched the movie Bhaag Milkha Bhaag. That movie inspired me, and I decided I wanted to achieve the same level of fitness as Milkha Singh. The first thing that came to mind was running. So, for the first time, I went to the running track and completed 50 laps of the 200-meter track, which is around 10 kilometers. From that day on, my friend and I started running daily for an hour, along with doing bodyweight exercises and burpees.
+ 
+That same year, I participated in a cross-country race for my hostel and won third prize. It felt like my biggest achievement, even bigger than any academic rank. That victory gave me confidence and helped me overcome my inferiority complex.
+ 
+Since then, I’ve never looked back. During the lockdown, I started weightlifting and put on some muscle. I also began enjoying activities like swimming and trekking. Though I’ve faced injuries along the way, I’ve never stopped working on my fitness.
+ 
+And that’s my journey.
+ 
+
 
 
