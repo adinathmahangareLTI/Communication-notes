@@ -98,4 +98,19 @@ The Taj Mahal is a year-round attraction and often busy, though new ticketing sy
 #### Tourism
 
 - one of the most visited tpourist spots in the world
-- millions of people - from all corners of the globe - 
+- millions of people - from all corners of the globe - to admire it's beauty
+  
+- recognised as UNESCO World Heritage site
+  
+- soft pink hue at dawn - shining white at midday - golden glow under moonlight
+- Taj Mahal never fails to captivate its vistors
+
+### Questions
+- Do you know which day in the week is not best to visit Taj Mahal?
+- Have you heard any myths about Taj Mahal?
+  
+#### Conclusion
+
+- Taj Mahal is not just a monument
+- it is a symbol of eternal love - an architectural masterpiece - jewel in India's cultural Heritage.
+- stands as a reminder of the timelessness of beauty, love and art
