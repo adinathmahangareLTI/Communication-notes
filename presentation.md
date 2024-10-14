@@ -64,6 +64,7 @@ The Taj Mahal is a year-round attraction and often busy, though new ticketing sy
 
 - one of the most iconic monuments in the world
 - symbol of India's rich heritage - the Taj Mahal
+- What is the first thing comes to your mind when I say Taj Mahal?
 
 #### History
 
