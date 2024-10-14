@@ -59,4 +59,43 @@ The Taj Mahal is a year-round attraction and often busy, though new ticketing sy
 
 - The Taj Mahal is a major tourist attraction and attracts a large number of domestic and foreign visitors. About five million visitors visited Taj Mahal in the financial year 2022–23.[3] A three-tier pricing system is in place, with a significantly lower entrance fee for Indian citizens and more expensive ones for foreigners. As of 2024, the fee for Indian citizens was ₹50, for citizens of SAARC and BIMSTEC countries, it was ₹540 and for other foreign tourists, it was ₹1,100. Visitors are allowed through three gates and as polluting vehicles are not allowed near the complex, tourists must either walk or take electric buses from the designated parking areas. The complex is open on all days except on Friday from one hour before sunrise to 45 minutes before sunset.[79] The complex is open for limited night viewing on the day of the full moon, excluding the month of Ramadan.[80] In 2019, to address overtourism, the site instituted fines for visitors who stayed longer than three hours.[81]
 
-- 
+
+### Main Points
+
+- one of the most iconic monuments in the world
+- symbol of India's rich heritage - the Taj Mahal
+
+#### History
+
+- built in 17th Century
+- by the Mughal Emperor Shah Jahan
+- in memories of his beloved wife Mumtaz Mahal.
+  
+- after her passing in 1631, he was heartbroken
+- decided to build a monument that would forever symbolises his love
+
+- took 22 years and 20,000 workers to complete this incredible structure
+- stands on the banks of Yamuna river in Agra.
+
+  
+#### Architecture
+
+-  extraordinory blend of Islamic, Persian, and Indian Architectureal styles
+  
+-  built entirely in White Marble - gives ethereal, glowing look - specially during sunrise and sunset
+
+-  dome is 240 feet high - there are four minarets - one at each corner - which frame the building beautifully
+
+-  inside, intricate carvings and percious stones are embeded into the marble - reflecting Mughal era's mastery in creafsmanship.
+
+#### Symbolism
+
+- design of Taj Mahal - not just about beauty - but also have deep symbolism
+
+- centre of the dome represents heavens
+- symmetry of the gardens and pathways symbolizes balance and perfection
+
+#### Tourism
+
+- one of the most visited tpourist spots in the world
+- millions of people - from all corners of the globe - 
